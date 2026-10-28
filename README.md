@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @DanicafDavies
+- 👋 Hi, I’m @Danica
 
